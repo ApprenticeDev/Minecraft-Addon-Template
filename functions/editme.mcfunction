@@ -1,0 +1,1 @@
+(rename the file as your function also delete me after this i mean the text then write your minecraft commands)
